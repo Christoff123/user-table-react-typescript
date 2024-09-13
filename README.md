@@ -1,0 +1,1 @@
+I tried to make this app as good as i can for my actual knowledge.
